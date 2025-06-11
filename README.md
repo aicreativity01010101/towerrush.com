@@ -1,61 +1,43 @@
-🏰 TowerRush by Galaxsys: Free Demo & Game Review
-Welcome to the official English reference page for TowerRush, the adrenaline-pumping crash game from Galaxsys!
-Explore the game everyone’s talking about—tower up, cash out, or crash!
+# 🏰 TowerRush by Galaxsys: Free Demo & Game Review
 
-What is TowerRush?
-TowerRush is a thrilling crash-style game where players climb a virtual tower to unlock multipliers and massive winnings. But don’t get greedy—cash out before the tower collapses, or lose it all!
+Welcome to the official English reference page for **TowerRush**, the adrenaline-pumping crash game from **Galaxsys**!
 
-🎯 Developed by Galaxsys, TowerRush combines instant gameplay, fast betting rounds, and a visually stunning interface—perfect for mobile and desktop.
+Explore the game everyone’s talking about—**tower up, cash out, or crash!**
 
-🚀 Play TowerRush Now
-👉 Click here to play for free or with real money:
-🟢 Play TowerRush on towerrush.com 🟢
+## 🎮 What is TowerRush?
 
-🎁 TowerRush Promo Codes & Bonuses
-Claim your exclusive bonus to play TowerRush with an edge:
+**TowerRush** is a thrilling crash-style game by Galaxsys. Climb a virtual tower and cash out before it collapses. The higher you go, the bigger the multiplier!
 
-100% Bonus up to €4,500 on your first deposit
+## 🚀 Play TowerRush Now
 
-Use promo code: TOWER
+👉 [Play TowerRush for Free or Real Money](https://towerrash.com)
 
-Offer available only via our official site
+## 🎁 TowerRush Bonuses
 
-➡️ Activate TowerRush Bonus Now
-🔑 Don’t miss this limited-time opportunity!
+- 100% Bonus up to €4,500
+- Promo Code: `TOWER`
+- Exclusive offer on [towerrush.com](https://towerrash.com)
 
-📱 TowerRush on Mobile – No App Needed
-TowerRush is designed for seamless play on any device:
+## 📱 No App Needed
 
-Android: Play instantly in your browser—no APK required
+TowerRush works on:
+- Android & iPhone browsers (no APKs)
+- Desktop & tablet
+- Add to home screen for an app-like experience
 
-iPhone/iPad: 100% compatible with Safari
+## 💥 Why Players Love It
 
-PC/Desktop: Just visit towerrush.com
+- Max win multiplier: x10,000
+- Fast, no-wait gameplay
+- Free demo mode – no sign-up needed
 
-💡 Pro Tip: Add TowerRush to your home screen for a true app-like experience without any downloads!
+## ❓ FAQ
 
-🔥 Why TowerRush Is So Popular
-✅ Max multiplier up to x10,000
-✅ Lightning-fast rounds and instant payouts
-✅ Crash-style suspense that keeps you hooked
-✅ No installation – 100% web-based
-✅ Free demo available – no registration needed
+**How to play?**  
+Visit [towerrush.com](https://towerrash.com), select demo or real play, climb and cash out!
 
-❓ Frequently Asked Questions
-How do I play TowerRush?
-Go to towerrush.com
+**Can I play for free?**  
+Yes, unlimited free demo available.
 
-Choose demo mode or real money
-
-Start your climb, and cash out before the tower crashes!
-
-Can I play for free?
-Yes! TowerRush offers unlimited free demo mode for all players—try it before you bet!
-
-Is there a TowerRush app?
-No need to download anything. TowerRush works in your browser on any device.
-📱 Play like it’s an app—without the hassle of APKs or installations.
-
-👉 Ready to climb? 
-🎮 Play TowerRush for Free & Claim Your Bonus at https://towerrash.com/
-
+👉 Ready to win?  
+🎮 [Play TowerRush for Free & Claim Your Bonus](https://towerrash.com)
